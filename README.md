@@ -57,3 +57,8 @@ E-M-A-I-L : DEAR_DDS#163.COM
 #
 https://github.com/Dear-Future/PublicChance
 #
+
+
+Dear-Future@2022  All Rights Reserved !
+
+#
